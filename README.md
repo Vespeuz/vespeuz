@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About:
 Bedrot while coding thinking a spirit talking in my head giving advices but its just hallucination
 
 
