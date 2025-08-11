@@ -1,6 +1,5 @@
 # 💫 About Me:
-I build scalable apps, craft smooth user experiences, and bring ideas to life in 3D.  
-My work blends **code and creativity**,from interactive web apps to fully rendered 3D assets. 
+Bedrot while coding thinking a spirit talking in my head giving advices but its just hallucination
 
 
 ## 🌐 Socials:
